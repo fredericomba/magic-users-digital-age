@@ -18,6 +18,6 @@ I can envision the other demons from these secret societies laughing at my pathe
 
 ## CONTACT
 
-EMAIL: [fredericomba.freelancer@gmail.com](fredericomba.freelancer@gmail.com)
+EMAIL: [fredericomba.freelancer@gmail.com](mailto:fredericomba.freelancer@gmail.com)
 
 LITECOIN: [ltc1qrvp4fhpsrljkktkdhtesupetm0dz7d8qj8mhx5](litecoin:LTC1QRVP4FHPSRLJKKTKDHTESUPETM0DZ7D8QJ8MHX5?label=Book%20%22MAGIC%20USERS%20IN%20A%20DIGITAL%20AGE%22)
