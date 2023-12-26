@@ -14,7 +14,7 @@ I can envision the other demons from these secret societies laughing at my pathe
 
 ## CHAPTERS
 
-1. FUNDAMENTALS
+1. [FUNDAMENTALS](chapters/FUNDAMENTALS.md)
 
 ## CONTACT
 
