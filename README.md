@@ -16,6 +16,7 @@ I can envision the other demons from these secret societies laughing at my pathe
 
 1. [FUNDAMENTALS](chapters/FUNDAMENTALS.md)
 2. [EXORCISM](chapters/EXORCISM.md)
+3. [CONTRACT MAGIC](chapters/CONTRACT_MAGIC.md)
 
 ## CONTACT
 
