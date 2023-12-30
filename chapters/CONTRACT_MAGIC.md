@@ -2,7 +2,7 @@
 
 ## CONTRACT MAGIC
 
-### EXEMPLARY SITUATION
+### EXEMPLARY SITUATION #1
 
 I eventually decided to counter-attack. If their attack consists of deceitfully manipulating the opinion of people in their favor, I'll properly counter-attack by truthfully manipulating the opinion of people against them. **Lies crumble easily as long as there's someone willing to poke them.**
 
@@ -17,6 +17,16 @@ To see my own body moving on its own, even though I had not issued any order for
 That was an unique moment in my life that showed me the numerous gaps and factual mistakes that permeate the public, shared body of knowledge of humankind. It is understandable that there are disbelievers that reject creeds based on the impossibility of things such as "ressurection of the dead". After all, when we look around at history, all that we see, over and over again, are people dying and not coming back. The presented evidence overwhelmingly points to the direction of "people die and don't come back". **However**, how many milleniums did humankind live without airplanes and yet we see them now as trivial and commonplace? No amount of white swans is enough to prove that there are no black swans, while a single black swan is enough to prove that black swans exist.
 
 **The ressurection of the dead is demonstrable today, right now.** Because, in the brief seconds that ghost was possessing me, it was alive again borrowing my body. That's probably one of the many goals that these secret societies have, because if I can know it this easily from the information that has been leaked to me through these ghostly encounters, they probably have more insight than me and likely have done actual research on the subject.
+
+### EXEMPLARY SITUATION #2
+
+I do not use the label "evil" casually. I'm always inclined to give chances to people, again and again, because I'm aware of their utter lack of knowledge and discipline which sets them up for failure (and even having those is no guarantee of success). It's also why these are the two first things I aim to address when looking to help people.
+
+However, among the numerous people I've met and interacted with, there is one single exception I've encountered in my whole life so far that I think deserves that label: my uncle. He's not looking for any kind of redemption or atonement and, while receiving a welfare check from government and being fully able-bodied, he just uses that money to fuel his addictions while trying to pester and annoy my grandmother to death for having her house for himself. **He's the person that has convinced me that there are people that are not worthy of being forgiven.** I have a friend that is serving an eighteen years-long sentence because of murder, but I don't think bad of him in the slightest and have even generously paid a lawyer to help him get a better deal on his sentence. Because I personally know the kindness of this friend, while knowing nothing about the target of the three strikes in the head using a hoe, I think that the so-called "victim" must have been a piece of shit in a rank nearing my uncle for this friend of mine to consider that as a solution for his problem. **That's Brazil for you,** so have that in mind when walking around here.
+
+But his relevance for this live book about magic is that he's likely an example of someone that made a "spontaneous contract" when ghosts noticed the opportunity. His addictions for food, cigarettes and booze might not come solely from himself, but also from lesser demons possessing him. He's always looking forward to get angry over banalities (so he can falsely see himself in "righteous ire") and begins screaming like a little spoiled brat even though he's in his sixties. I have discipline, so my only concern when that happens is how to use force against him in self-defense (because even though he's the one blatantly inviting confrontation, he'll play victim later). Thankfully we're in an age where there are video recording devices that are easy to use and one arm is enough to beat him up if needed (so that the other one can hold the camera).
+
+When he throws those tantrums, **there is something more that I can't find in similar situations.** I can feel ghostly influences messing up with my blood when he does that, as if they're acting as an extra power for him. I'm glad that he's stupid and lacks discipline, because if he were otherwise, he might have become a politician and those ghostly abilities that came from that spontaneous contract could have been used to harm far more people.
 
 ### INTRODUCTION
 
