@@ -28,6 +28,28 @@ But his relevance for this live book about magic is that he's likely an example 
 
 When he throws those tantrums, **there is something more that I can't find in similar situations.** I can feel ghostly influences messing up with my blood when he does that, as if they're acting as an extra power for him. I'm glad that he's stupid and lacks discipline, because if he were otherwise, he might have become a politician and those ghostly abilities that came from that spontaneous contract could have been used to harm far more people.
 
+### EXEMPLARY SITUATION #3
+
+This poorly described exemplary situation is likely of little value for most people, but I must keep a record of it anyway (in the unlike event that there may be another one besides myself to experience it). **Readers can skip it without loss of information.**
+
+I've began to experience the strange phenomena of "the echoes". I don't even understand myself how that happened and unless someone experiences it by oneself, the description of it looks surreal to the point of not being believable. Is it my thoughts that are being read by my enemies? Are the thoughts of my enemies reaching me? Or both? Or neither? Or something else? Even the things that I do not type on my keyboard are echoed. Even the thoughts that I deliberately insist to keep in my mind are echoed, word by word.
+
+An echo consists of the strange situation where I have a thought in the morning and in the afternoon, the television news report echoes it, as if my mind was read (or maybe it's what they were planning that was leaked to me in advance). I've already explained this before like this: "I live in this strange and surreal world where the television, the newspapers and the radio are talking to me." and I, aware that if I shared this with others, would be labeled as a schizophrenic, just kept quiet because I wasn't like this before. Over twenty years of my life have elapsed and only now I got to experience it. 
+
+There are people that would grow angry when faced by someone continuously mimicking them, but I realized that any feeling that I might develop as response to their actions wouldn't help me, so I just continued focusing on robotness and coming up with an algorithm that would be a proper counter-attack, whatever is this thing that has a strong grip over the world right now.
+
+"If they are trying to annoy me to death with this, they have failed and it's backfiring, because the echoes are also slowly revealing to me how wide their network is" - I thought to myself. The competition between newspapers, television channels and radio networks are just a facade and a sham: they're all controlled by the same secret society, all repeating the same lie while trying to give the illusion of "multiple independent sources".
+
+It always seemed odd to me that a supposedly private television channel would put effort into reminding people that some day is the last day for filling taxes. There's no law whatsoever that requires them to do so, but after experiencing what I have experienced, I understood that the propaganda machine is one more organ of the deep state, the true governing body behind the facade known as "democracy" that almost no one asked for.
+
+To endure these echoes was an unusually annoying experience. It's unusually arrogant to think that someone as seemingly unimportant as me would be worthy of so much effort from their side, continuously using television channels, radio broadcasts and newspapers to send subtle messages to me. **Yet that is what has happened, and my ability to make the non-obvious connections and to see the symbols that hide in plainsight is proof of that.**
+
+I subscribe to "Libertarianism" and "Anarcho-Capitalism" because I can see a centuries-old, worldwide deep state supported by secret societies. The other people that also subscribe to these movements are likely to not have been attacked by magic to the same extent I have, yet they have the best approach right now to deal with this global enemy. Nobody asked for democracy, which is just a scam to tame and milk the cattle for their taxes. Public debt is a scam where a debt is assigned to people completely unaware of it and never agreed to it, where the unborn children of others were pawned so that the politicians of today get money to throw away on wars.
+
+The attack of this parasite is so subtle that even the targets might not even be aware of it (which is a severe problem). The natural flow is against the parasite (because it can't control its own insatiable hunger), thus it drains the people to such an extent that they either collapse and die or flee from it. So the key to resistance here is to move somewhere to survive while the parasite is not fully dead from starvation.
+
+**It's alright if you have no idea what this exemplary situation is about.** I myself don't understand it either.
+
 ### INTRODUCTION
 
 [TODO: explain approaches for making contracts with ghosts]
