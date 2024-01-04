@@ -52,4 +52,18 @@ The attack of this parasite is so subtle that even the targets might not even be
 
 ### INTRODUCTION
 
-[TODO: explain approaches for making contracts with ghosts]
+In this live book chapter, I'm trying to demonstrate how to approach ghosts and get them to help the magic user, but **I must admit that's something novel for me.** In my experience, the roles were reversed: the ghosts approached me and made requests. As described in "exemplary situation #1", the ghost tried to get me into an agreement to "stop it". If you have unexplainable, sudden urges that seem out of place, these might come from ghosts possessing you.
+
+Why would a magic user and a ghost enter a contract to begin with? It's the same reason why any two parties would engage in an exchange: party A has something that party B wants or needs and party B has something that party A wants or needs.
+
+The earthly ghosts, still yearning to exist and have the mundane pleasures that the living have, want a body so badly that they're willing to steal one if needed. With discipline, it's possible to resist the theft attempt known as "possession". **By simply being aware that ghosts exist, you are slightly ahead of others**, because the ghosts will know that you'll listen to their signals (unlike those that don't believe they exist) and communicating with you becomes possible to some extent.
+
+Ghosts can see the doubts in your heart, and this may lead them to abandon you. They may begin to consider: "is this host reliable and will indeed fulfill the contract?", "the host is having second-thoughts, maybe we should drop the host and look for someone else". Ghosts can also see your unwavering willingness, which helps them on staying with you: "this host is indeed able and serious on fulfilling the contract, let's continue helping him".
+
+There is more than a "yes" or "no" answer that can be given to ghosts: it's possible to negotiate with them. I've received unusually disguting requests from ghosts, even for standards as low as my own, but continuously refused and then it eventually ceased. The ghosts then bargain for something else, such as looking through lewd pictures that are so easily reachable these days and maybe some bodily pleasure.
+
+**Be aware that earthly ghosts may not have your best interest in mind and may see you as discardable.** They may want to borrow your body to have some fun but will quickly move to the next one once the opportunity presents itself, leaving whatever damage of their actions as a liability that you're the solely one to bear the cost. It's up to you to calculate the risks and payoffs of accepting their demands.
+
+The abilities that ghosts can provide you include "mind-reading", where they read the minds of people nearby and send the information to you (something I mistook as my brain picking up noise from the brains of other people nearby). They can also warn of hidden dangers that are out of your sight but visible to them.
+
+**If a ghost possesses you, embrace it.** I have no idea on how to find ghosts and, by embracing them, you'll get time to know them and negotiate something. 
